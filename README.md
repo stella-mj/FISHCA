@@ -8,7 +8,7 @@ Contributors:
 Adithya Raj  
 Fiona Feng  
 Hailey Kim  
-Jenny Lam  
+Ching Hei Lam  
 Ikra Mortoza  
 Stella Mortarotti  
 
